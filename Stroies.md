@@ -3,6 +3,7 @@
 - Reasons why Google’s Orkut failed after Facebook was launched. 
   Also know what Orkut’s founder is doing recently to start up again.
 [Check this page](https://medium.com/@PachaelPhillip/case-study-reasons-why-googles-orkut-failed-after-facebook-was-launched-92dd8a7abf0)
+
   lesson:
   1)Positive changes are needed in order to make a company profitable in long term.
   2)Its also important to observe and audit the competitor’s work and success. And build better than your competitors.
