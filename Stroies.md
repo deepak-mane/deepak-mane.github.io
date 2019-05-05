@@ -519,4 +519,6 @@ Nortel was a multinational telecom and data networking equipment manufacturer th
 Their research and development team had fallen behind and the business began to decline because of broadband and VoIP. Plus around the year 2000 Nortel had misstated their financials, which wasn’t discovered for a number of years, bringing them to a downfall. In 2009 the company filed for bankruptcy.
 
 Jamie Sturgeon’s take on where Nortel went wrong.
+![Alt text](./images/Maps-of-50-companies-failed.png?raw=true "Title")
+
 Innovation in large corporation is a tricky business. And in most cases it is a game of chance. But the most successful companies are those that continue corporate innovation. Never resist innovation as a business. Make sure to listen to your customer’s needs and keep up with the trends. Not only that, make sure that your leadership and strategies are in place because you should always be working on improving and trying out different types of innovation strategy.
