@@ -31,3 +31,27 @@ We can do the same thing for our co-workers, customers, vendors and anybody else
 25. Get a journal and write in it at home. When you start a new job, you’re immersed in a new and different environment. Your senses are wide open then. Write down your impressions. They will serve you later!
 
 Have a great time in the new job and keep growing your flame!
+
+
+# 7 Ways To Make Your Manager Your Biggest Fan
+There are behaviors that some people like, and seek to emulate, that are simultaneously hated by others. I first started to realize this in high school, when boys tended to like some of my behaviors while girls found them crude. These lessons helped me discover which behaviors are socially acceptable while in my youth.  In a similar vein, employees can benefit from knowing the behaviors their manager values most.
+
+ 
+Managers typically want their employees to be effective at everything. To identify the behaviors that influence them the most, I first looked at a Zenger Folkman dataset of 58,415 leaders. Next, I selected those who had the largest positive difference between how their manager rated them, and how peers and direct reports rated them. I then separated them into two groups: those the manager rated more positively, and those the manager rated more negatively. This analysis revealed some common key issues that tend to be hot buttons for managers. The following seven behaviors are those that managers value most:
+
+1. Strategic Perspective. Many people think it’s the manager’s responsibility to be clear about the strategy of the organization—setting a strategic direction is not part of most people’s job description. However, managers want direct reports to have strategic perspective before they are required to use it in their job. At Zenger Folkman, we have found that this is the largest skill gap for those rated as having high potential. Do you have a clear perspective about the big picture vision for your organization, while also knowing how your role helps bring about that vision? One way to demonstrate your strategic perspective is to help others clarify and understand the vision.
+
+2. Be A Champion Of Change. Managers need people to accept change, and are often frustrated by those who resist it. Have the courage to try new things—managers know that mistakes may be made when adapting to changing processes. Challenge some of the standard approaches and independently look for a better way forward.
+
+3. Keep Your Manager Informed. Managers need to be well informed about their employees’ work and potential problems that may exist. Imagine your manager is discussing a project you are working on with their boss. When asked about your project, your manager boldly says, “Everything is great!” In reality, you had encountered a problem but did not share it with your manager in case it made you look incompetent. The problem with this omission is that now your manager looks incompetent—and it’s your fault. Providing your manager with quick progress reports will have a lasting impact on creating a positive relationship.
+
+4. Show Some Energy And Be An Inspiration. Mood matters a lot at work. Just like the flu, the mood can spread to others—research has shown that even a person’s happiness is contagious. Cynics or pessimists are less likable. If you complain about having extra work to do, then chances are you are not your manager’s favorite direct report. If you are overwhelmed with work it is often because your boss has given you a stretch goal, which should be viewed positively!
+
+5. Take Initiative And Deliver On Your Commitments. Be the direct report that sees the mess and cleans it up. When there is an unexpected problem, fix it. When you are behind schedule on your work, stay late and catch up. Be willing to move mountains to deliver on commitments. Managers love direct reports who take initiative, and become frustrated when they must point out every mess and problem.
+
+6. Be A Problem Solver. When some people encounter a problem, they stop what they were doing and take the problem to their manager to solve. Managers love direct reports that can anticipate potential problems. Researchers have found that if people take some time to consider what might go wrong with a project, they are very good at anticipating and avoiding problems. When you encounter a problem, come up with potential solutions before taking it to your manager.
+
+7. Be A Trusted Team Member. Have you ever been part of a team where you loved to come to work, enjoyed being with your fellow team members, and the team was highly productive? Conversely, have you ever been part of a team where you hated coming to work, there was conflict, and it was hard to get work accomplished? One of the most challenging aspects of your manager’s job is resolving conflict between team members.  If you have constant problems with your colleagues, chances are your manager does not like you. Be a team member who pulls the team together, not apart.
+
+As you read through the list, you may have identified one to two items you could do to make your manager your biggest fan. Write them down and generate a goal. Set an appointment with yourself once a week to review your progress. Identify people who seem to be talented in those areas and ask them for some coaching. It takes time and reminders to break bad habits, but as your abilities in these areas strengthen, so will your relationship with your manager.
+
